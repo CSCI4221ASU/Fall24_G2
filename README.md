@@ -5,9 +5,9 @@
 
        Ernest Givens
 
-       Nia Williams
-
        Karmon Jackson-bell
+
+       Nia Williams
 
    # Submissions
 
